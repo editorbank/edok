@@ -33,3 +33,4 @@
 
 ## Ссылки
 * [Котлеты из кальмаров](https://www.youtube.com/watch?v=nNDYXUtKdwE)
+* [Котлетки из кальмаров с чёрными спагетти](https://www.youtube.com/watch?v=RXr5hkwOBEc)
